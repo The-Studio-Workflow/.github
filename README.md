@@ -11,6 +11,7 @@ We help small businesses stop losing time (and jobs) to repetitive work. Two way
 🛍️ Etsy shop: https://www.etsy.com/shop/TheStudioWorkflow
 📘 Facebook: https://www.facebook.com/profile.php?id=61596683811750
 📸 Instagram: [@thestudioworkflow](https://www.instagram.com/thestudioworkflow)
+💼 LinkedIn: https://www.linkedin.com/company/thestudioworkflow
 📍 Virginia Beach, VA
 
 ---
